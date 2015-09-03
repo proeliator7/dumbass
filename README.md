@@ -4,3 +4,6 @@ so sad
 
 kurwa
 
+
+zmiany wiecej zmian
+
